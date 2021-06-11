@@ -1,1 +1,1 @@
-:Merhaba ben  kaan yavuzer:)
+Hi, I’m Kaan Yavuzer
